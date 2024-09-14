@@ -1,7 +1,7 @@
 # **Aridwan** is Here!
 
 Links:  
-[Linkedin](https://www.linkedin.com/in/aridwan-740ba9310/) 
+[LinkedIn](https://www.linkedin.com/in/aridwan-740ba9310/) 
 [Instagram](https://www.instagram.com/aridwaannn/)
 
 ### Github Statistic
